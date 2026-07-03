@@ -1,4 +1,4 @@
-#  
+#  kaizen Script smart offers the most advanced kaizen Script, with unlimited stamina and auto-farm. Perfect for dominating any match.
 
 
 
